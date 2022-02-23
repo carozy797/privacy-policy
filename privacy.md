@@ -1,3 +1,4 @@
+privacy policy for ok loans 
 The privacy of the information you provide is valuable to ok loans app. ok loans knows how important your information is to you and in that care how this information about you is used and shared. We appreciate your confidence and trust you have in us and that we will treat your information with utmost care and serious minded. This privacy policy includes what we gather and how we use, communicate, transfer and store your information.
 
     Any question regarding this privacy policy may be communicated to us through the information provided below:
